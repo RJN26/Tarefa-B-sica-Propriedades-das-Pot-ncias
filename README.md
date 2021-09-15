@@ -1,0 +1,1 @@
+# Tarefa-B-sica-Propriedades-das-Pot-ncias
